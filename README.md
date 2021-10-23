@@ -3,17 +3,17 @@ Repo for Group 2's IT 115 Branch Pull Merge Repeat Project
 
 Wireframe of Story:
 
-Beginning - Person Assigned:
+Beginning - Person Assigned:  
 Character introduction, set the scene, begin the layout of some apocalypse, who is the object of their attention
 
-Buildup - Person Assigned:
+Buildup - Person Assigned:  
 Build tension, what is binding the character to their problems, what is stopping them from reaching their object of attention
 
-Climax - Person Assigned:
+Climax - Person Assigned:  
 Breaking free of bindings and running from things
 
-Resolution - Person Assigned:
+Resolution - Person Assigned:  
 The journey to reach their desired partner, running to them rather than away from bindings
 
-End - Person Assigned:
+End - Person Assigned:  
 Finally meeting and being together for the first and last time knowing they are free, end with tragedy of the apocalypse
