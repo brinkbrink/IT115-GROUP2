@@ -15,5 +15,5 @@ Breaking free of bindings and running from things
 Resolution - Person Assigned:  
 The journey to reach their desired partner, running to them rather than away from bindings
 
-End - Person Assigned:  
+End - Person Assigned:  Austin
 Finally meeting and being together for the first and last time knowing they are free, end with tragedy of the apocalypse
