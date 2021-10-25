@@ -9,7 +9,7 @@ Beginning - Person Assigned: Sam
 Character introduction, set the scene, begin the layout of some apocalypse, who is the object of their attention
 
 Buildup - Person Assigned: William    
-Build tension, what is binding the character to their problems, what is stopping them from reaching their object of attention
+hello..........hello....Once upon of time there was a Pandemic call cornona virus that kept a couple apart...
 
 Climax - Person Assigned:  Brink  
 Breaking free of bindings and running from things
