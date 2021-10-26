@@ -25,7 +25,17 @@ It seemed like everybody had succumbed to the virus in one way or another. Elect
 
 Timothy had managed to hold onto his backpack which housed all his essentials: some seeds he hoped to plant, a pint of whiskey (he wasn't much of a drinker but the water wars had made the liquid unobtainable for most so he settled for what Gaelics call "uisge beatha" or "water of life"), a shovel, a rope, a flint, that old walkie talkie and most imporantly...a photo of her. 
 
+It was all he needed to make his trek to Rachel. And he did. He finally boarded a plane after waiting for so long to see her--and she didn't know he would ever found her and yet had an undeniable feeling that he would. He figured it felt like fate. 
 
+The flight was peaceful enough despite the fact that the plane was old and would've been decomissioned in earlier days, but you could be pickier in earlier days. These were the end days. Timothy sat patiently holding onto this hope; the photo of Rachel in his hand and her memory in his heart. He even struck up a non-verbal conversation with another passenger on the plane (people don't talk anymore--fear of the virus). They were hoping to find somebody, too. 
+
+Just as Timothy was learning the story of this stranger the plane jolted. The pressure in the cabin fell instantly. Timothy's heart, preoccupied with Rachel, barely jumped, but the rest of the passengers were consumed by terror. He could barely hold Rachel's voice in his head above all the screaming. 
+
+Then he had a thought he tried to avoid: what if he never holds her again?
+
+The thought pierced his mind and made everything go black. Not the fear of dying; the fear of being without her.
+
+In what felt like the next second, but was actually a few hours later, he woke up amidst the rubble of the plane. 
 _____________________
 
 Resolution - Person Assigned:  Hanan    
