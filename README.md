@@ -44,7 +44,7 @@ He rummaged through his backpack, pulling out his old walkie talkie. Holding the
 
 They agreed to meet up in a deserted neighborhood he had found on one of his outings. They both needed to be prepared because it would be a dangerous journey. After the virus had broken out, chaos had taken place. People took advantage of the panic and disorderliness that resulted from the news of the virus. Stores were getting looted, buildings were on fire, and violence prevailed. At times like this, people were their own worst enemy.    
 _____________________
-
+<!----you and Hanan may have shared ending together, maybe--->
 End - Person Assigned: Austin  
 
 With everything collapsing, Timothy drew ragged breaths, their feet sore from running. Sore soles and screaming out in his mind, he saw the silhouette of his love illuminated by the flames behind them. Reinvigorated by the sight, he continued to run reaching for that fragment of a desired life. And out of nowhere, they embraced. Soft hands combing through Timothy's hair and his heavy breathing began to slow. Looking up with his tired eyes to the face he had missed for who knows how long, tears streamed as he felt joy for the first time in ages. Though everything around them grew more and more unstable, he was happy, and so too was their love. Their words lost in the torrent, nothing could convey they euphoria they felt together for the first and last time. But for however long it was, the two were able to live happily ever after.
