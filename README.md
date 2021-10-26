@@ -3,7 +3,7 @@ Repo for Group 2's IT 115 Branch Pull Merge Repeat Project
 
 Storyline (in progress): A tragedy about a character that has been seperated from their love interest for most of their life, but as the world ends around them (apocalypse: virus) for some reason they manage to force their way out of their bindings, only to spend their last precious moments together. 
 
-Wireframe of Story:
+Story:
 
 Beginning - Person Assigned: Sam  
 
