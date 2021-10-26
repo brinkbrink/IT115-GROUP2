@@ -17,7 +17,10 @@ Build tension, what is binding the character to their problems, what is stopping
 _____________________
 Climax - Person Assigned:  Brink  
 
-Breaking free of bindings and running from things
+It seemed like everybody had succumbed to the virus in one way or another. Electric grids, schools, banks, and communities had fallen into disrepair. Looting and bartering became more common than buying. Life was chaotic, but Timothy supposed it was chaotic even before the end times came upon him.
+
+Timothy had managed to hold onto his backpack which housed all his essentials: some seeds he hoped to plant, a pint of whiskey (he wasn't much of a drinker but the water wars had made the liquid unobtainable for most so he settled for what Gaelics call "uisge beatha" or "water of life"), a shovel, a rope, a flint, that old walkie talkie and most imporantly...a photo of her. 
+
 
 _____________________
 
