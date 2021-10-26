@@ -11,12 +11,20 @@ The year was 2120 and the virus had spread across the world like wildfire. Life 
 _____________________
 Buildup - Person Assigned: William    
 
-Build tension, what is binding the character to their problems, what is stopping them from reaching their object of attention
+It turn out Timothy was able to win some money at a casino playing the slots at a casino and with the $15,000.00 he won he rushed to go buy a plane ticket and in hopes applying for a visa to go to war bound country in East Africa. Tim then realize that he was not able to gain a tourist visa on arrivial so Tim was super confuse and upset because he was eager to contacted his intimate partner who he lost contacted with. Things had became better for Tim because he was fortunate enough to visit his partner twice in her country before the virus terrorized the entire earth. So Tim was aware on how to located Rachel from his past visits to her country.. Tim was very worry because things was not great in Rachel's country either.  Tim finally tryied to apply online for a visa but the website was down for maintenance. A month went by with Tim eagerly searching for answers from a immigration attorney on how can Tim apply for a visa thru the Embassy, not sure, because the embassy was not allowing walk in visits. But By surprise, Tim went back to check the online visa website which was open now for visa applications and in less then two days they sent Tim an 90 day visa to return to hopefully contacted Rachel his future wife - hopefully soon.
+
 
 _____________________
 Climax - Person Assigned:  Brink  
 
+<<<<<<< HEAD
 Succumbed to the virus.
+=======
+It seemed like everybody had succumbed to the virus in one way or another. Electric grids, schools, banks, and communities had fallen into disrepair. Looting and bartering became more common than buying. Life was chaotic, but Timothy supposed it was chaotic even before the end times came upon him.
+
+Timothy had managed to hold onto his backpack which housed all his essentials: some seeds he hoped to plant, a pint of whiskey (he wasn't much of a drinker but the water wars had made the liquid unobtainable for most so he settled for what Gaelics call "uisge beatha" or "water of life"), a shovel, a rope, a flint, that old walkie talkie and most imporantly...a photo of her. 
+
+>>>>>>> 89cf36710da6ab633d4b94429b81e999636578fe
 
 _____________________
 
