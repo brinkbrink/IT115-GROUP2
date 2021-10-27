@@ -1,20 +1,15 @@
-## (The End Of the World As We Know It)
+# The End Of the World As We Know It
 
-***
-
-> ### Beginning - Person Assigned: Sam
 
 Once upon a time, a virus had spread across the world like wildfire. The year was 2120 and life for human beings was slowly coming to an inevitable end and they all knew it. Those who were fortunate enough to still be alive spent their days rummaging through deteriorating buildings and empty houses in search of whatever they could find to sustain them. Timothy Gray sat in an abandoned grocery store and stared at a picture in his wallet. He did it for her, she was the love of his life. The only thing that kept him going was the thought of being reunited with her, to spend the final moments on earth with her. It was all he wanted, for he hadn’t seen her since before the virus started. The last conversation they had was after the world went into a quarantine. They spoke over walkie talkies, and he’s held onto it over the years in hopes of hearing her voice one last time.
 
-***
+⤜
 
 > ### Buildup - Person Assigned: William
 
 Replace text with your part of the story here
 
-***
-
-> ### Climax - Person Assigned: Brink
+⤜
 
 It seemed like everybody had succumbed to the virus in one way or another. Electric grids, schools, banks, and communities had fallen into disrepair. Looting and bartering became more common than buying. So the difficulty in making these arrangements was not surprising. Life was chaotic, but Timothy supposed it was chaotic even before the end times.
 
@@ -30,11 +25,9 @@ Then he had a thought he tried to avoid: what if he never holds her again?
 
 The thought pierced his mind and made everything go black. Not the fear of dying; the fear of being without her.
 
-In what felt like a single second, but was actually a few hours later, he woke up amidst the rubble of the plane. 
+⤜
 
-***
-
-> ### Resolution - Person Assigned: Hanan
+In what felt like a single second, but was actually a few hours later, he woke up amidst the rubble of the plane. It wasn't exactly the best welcome into the world, but at this point, Timothy wasn't surprised. In the first place, going on a plane amongst the chaos wasn't the smartest idea but Timothy was willing to do anything to see Rachel again. He must have been knocked out for a long time because other than himself, the only people around were those who were unfortunate enough to not have survived the crash. He felt an emptiness in his heart at this fact.
 
 He rummaged through his backpack, pulling out his old walkie talkie. Holding the walkie talkie brought back memories of their long-ago late-night conversations and a small smile made its way onto his face. There were limited ways to contact her, what with the lack of internet or cell service, so walkie talkie it was. She might have just thrown hers away, and if she hadn’t, what was the chance that she had hers turned on too?
 
@@ -42,16 +35,12 @@ He rummaged through his backpack, pulling out his old walkie talkie. Holding the
 
 “Is anyone there? Over,” he spoke into the walkie talkie. Static. He repeated the cycle a few more times and was about to give up when he heard some muffled sounds.
 
-“Who’s there? Over,” said a feminine voice. He recognized that voice!
+“Who’s there? Over,” said a feminine voice. He recognized that voice! He was surprised her walkie talkie was even in range. She must be close.
 
 “It’s me, Timothy. Is that you, Rachel? Over.”
 
-“It is! Is that really you Timothy? Why-I can’t believe this is the way we’re talking to each other again,” she laughed. He missed her laugh. No- he missed her. He would’ve never imagined that an apocalypse is what it would take to get them speaking to each other again. Over their old walkie talkies, they caught up and reminisced about their past. It didn’t take long before they were planning to meet. After all in an apocalypse where the world was slowly dying, having company was more comfortable than wandering alone.
+“It is! Is that really you Timothy? Why-I can’t believe this is the way we’re talking to each other again,” she laughed. He missed her laugh. No- he missed her. He would’ve never imagined that an apocalypse is what it would take to get them speaking to each other again. Over their old walkie talkies, they caught up and reminisced about their past. It didn’t take long before they were planning to meet. After all in an apocalypse where the world was slowly dying, having company was more comfortable than wandering alone. He told her about he had barely survived the plane crash. He felt relieved when she told him that she didn't live very far from the area the plane had crashed. She told him she would meet him there in an hour. He was willing to wait but his injuries were taking a toll on him the longer he waited.
 
-They agreed to meet up in a deserted neighborhood he had found on one of his outings. They both needed to be prepared because it would be a dangerous journey. After the virus had broken out, chaos had taken place. People took advantage of the panic and disorderliness that resulted from the news of the virus. Stores were getting looted, buildings were on fire, and violence prevailed. At times like this, people were their own worst enemy.
+⤜
 
-***
-
-> ### End - Person Assigned: Austin
-
-With the smoldering wreckage in the background, Timothy drew ragged breaths, his body sore from the crash. Sore soles and his joints screaming out in his mind, he saw the silhouette of his love illuminated by the mudy lights behind her. Reinvigorated by the sight, he ran, reaching for that fragment of a desired life. And out of nowhere, they embraced. He dropped the walkie talkie as soft hands combing through Timothy's hair and his heavy breathing began to slow. Looking up with his tired eyes to the face he had missed for who knows how long, tears streamed as he felt joy for the first time in ages. Though everything around them grew more and more unstable, he was happy, and so too was their love. Their words lost in the torrent, nothing could convey they euphoria they felt together for the first and last time. But for however long it was, the two were able to live happily ever after.
+With the smoldering wreckage in the background, Timothy drew ragged breaths, his body sore from the crash. Sore soles and his joints screaming out in his mind, he saw the silhouette of his love illuminated by the lights behind her. Reinvigorated by the sight, he ran, reaching for that fragment of a desired life. And out of nowhere, they embraced. He dropped the walkie talkie as soft hands combing through Timothy's hair and his heavy breathing began to slow. Looking up with his tired eyes to the face he had missed for who knows how long, tears streamed as he felt joy for the first time in ages. Though everything around them grew more and more unstable, he was happy, and so too was their love. Their words lost in the torrent, nothing could convey they euphoria they felt together for the first and last time. But for however long it was, the two were able to live happily ever after.
