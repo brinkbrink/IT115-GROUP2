@@ -3,7 +3,7 @@ Repo for Group 2's IT 115 Branch Pull Merge Repeat Project
 
 ### Group members: 
 
-[E Brink](https://github.com/brinkbrink)     
+[E. Brink](https://github.com/brinkbrink)     
 [Hanan Osman](https://github.com/heosman)      
 [Austin Doke](https://github.com/ALDoke)    
 [Sam Smolen](https://github.com/Sam-Smolen)    
