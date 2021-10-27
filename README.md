@@ -1,7 +1,7 @@
 # IT115-GROUP2
 Repo for Group 2's IT 115 Branch Pull Merge Repeat Project
 
-Group members: 
+### Group members: 
 
 [E Brink](https://github.com/brinkbrink)     
 [Hanan Osman](https://github.com/heosman)      
@@ -20,8 +20,6 @@ A tragedy about a character that has been seperated from their love interest for
 **Beginning** - Person Assigned: Sam  
 
 **Buildup** - Person Assigned: William    
-
-
 
 **Climax** - Person Assigned:  Brink  
 
