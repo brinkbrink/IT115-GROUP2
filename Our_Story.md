@@ -3,7 +3,7 @@
 
 > Beginning - Person Assigned: Sam
 
-Replace text with your part of the story here
+The year was 2120 and the virus had spread across the world like wildfire. Life for human beings was slowly coming to an inevitable end and they all knew it. Those who were fortunate enough to still be alive spent their days rummaging through deteriorating buildings and empty houses in search of whatever they could find to sustain them. Timothy Gray sat in an abandoned grocery store and stared at a picture in his wallet. He did it for her, she was the love of his life. The only thing that kept him going was the thought of being reunited with her, to spend the final moments on earth with her. It was all he wanted, for he hadn’t seen her since before the virus started. The last conversation they had was after the world went into a quarantine. They spoke over walkie talkies, and he’s held onto it over the years in hopes of hearing her voice one last time.
 
 > Buildup - Person Assigned: William
 
