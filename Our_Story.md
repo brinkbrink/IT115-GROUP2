@@ -29,7 +29,19 @@ In what felt like a single second, but was actually a few hours later, he woke u
 
 >Resolution - Person Assigned: Hanan
 
-Replace text with your part of the story here
+He rummaged through his backpack, pulling out his old walkie talkie. Holding the walkie talkie brought back memories of their long-ago late-night conversations and a small smile made its way onto his face. There were limited ways to contact her, what with the lack of internet or cell service, so walkie talkie it was. She might have just thrown hers away, and if she hadn’t, what was the chance that she had hers turned on too?
+
+“Still, it wouldn’t hurt to try,” Timothy thought. He made sure it was on and tuned to their channel before clearing his throat and pressing down on the transmit button.
+
+“Is anyone there? Over,” he spoke into the walkie talkie. Static. He repeated the cycle a few more times and was about to give up when he heard some muffled sounds.
+
+“Who’s there? Over,” said a feminine voice. He recognized that voice!
+
+“It’s me, Timothy. Is that you, Rachel? Over.”
+
+“It is! Is that really you Timothy? Why-I can’t believe this is the way we’re talking to each other again,” she laughed. He missed her laugh. No- he missed her. He would’ve never imagined that an apocalypse is what it would take to get them speaking to each other again. Over their old walkie talkies, they caught up and reminisced about their past. It didn’t take long before they were planning to meet. After all in an apocalypse where the world was slowly dying, having company was more comfortable than wandering alone.
+
+They agreed to meet up in a deserted neighborhood he had found on one of his outings. They both needed to be prepared because it would be a dangerous journey. After the virus had broken out, chaos had taken place. People took advantage of the panic and disorderliness that resulted from the news of the virus. Stores were getting looted, buildings were on fire, and violence prevailed. At times like this, people were their own worst enemy.
 
 >End - Person Assigned: Austin
 
