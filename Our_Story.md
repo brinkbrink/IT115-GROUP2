@@ -9,8 +9,9 @@ It turned out Timothy was able to win some money at a casino playing the slots a
 
 Things had became better for Tim because he was fortunate enough to visit his partner twice in her country before the virus terrorized the entire earth. So Tim was aware on how to locate Rachel from his past visits to her country. Tim was very worried because things was not great in Rachel's country either. Tim finally tried to apply online for a visa but the website was down for maintenance.
 
-A month went by with Tim eagerly searching for answers from an immigration attorney on how to apply for a visa thru the Embassy but because the embassy was not allowing walk in visits, it was difficult. But By surprise, Tim went back to check the online visa website which was open now for visa applications and in less then two days, they sent Tim an 90 day visa to return to Rachel, his future wife - hopefully soon.
-⤜
+A month went by with Tim eagerly searching for answers from an immigration attorney on how to apply for a visa thru the Embassy but because the Embassy was not allowing walk in visits, it was difficult. But by surprise, Tim went back to check the online visa website which was open now for visa applications and in less then two days, they sent Tim an 90 day visa to return to Rachel, his future wife - hopefully soon.
+
+⤜    
 
 It seemed like everybody had succumbed to the virus in one way or another. Electric grids, schools, banks, and communities had fallen into disrepair. Looting and bartering became more common than buying. So the difficulty in making these arrangements was not surprising. Life was chaotic, but Timothy supposed it was chaotic even before the end times.
 
@@ -26,7 +27,7 @@ Then he had a thought he tried to avoid: what if he never holds her again?
 
 The thought pierced his mind and made everything go black. Not the fear of dying; the fear of being without her.
 
-⤜
+⤜      
 
 In what felt like a single second, but was actually a few hours later, he woke up amidst the rubble of the plane. It wasn't exactly the best welcome into the world, but at this point, Timothy wasn't surprised. In the first place, going on a plane amongst the chaos wasn't the smartest idea but Timothy was willing to do anything to see Rachel again. He must have been knocked out for a long time because other than himself, the only people around were those who were unfortunate enough to not have survived the crash. He felt an emptiness in his heart at this fact.
 
