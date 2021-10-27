@@ -1,13 +1,18 @@
 ## (The End Of the World As We Know It)
 
+***
 
 > ### Beginning - Person Assigned: Sam
 
 Once upon a time, a virus had spread across the world like wildfire. The year was 2120 and life for human beings was slowly coming to an inevitable end and they all knew it. Those who were fortunate enough to still be alive spent their days rummaging through deteriorating buildings and empty houses in search of whatever they could find to sustain them. Timothy Gray sat in an abandoned grocery store and stared at a picture in his wallet. He did it for her, she was the love of his life. The only thing that kept him going was the thought of being reunited with her, to spend the final moments on earth with her. It was all he wanted, for he hadn’t seen her since before the virus started. The last conversation they had was after the world went into a quarantine. They spoke over walkie talkies, and he’s held onto it over the years in hopes of hearing her voice one last time.
 
+***
+
 > ### Buildup - Person Assigned: William
 
 Replace text with your part of the story here
+
+***
 
 > ### Climax - Person Assigned: Brink
 
@@ -27,6 +32,8 @@ The thought pierced his mind and made everything go black. Not the fear of dying
 
 In what felt like a single second, but was actually a few hours later, he woke up amidst the rubble of the plane. 
 
+***
+
 > ### Resolution - Person Assigned: Hanan
 
 He rummaged through his backpack, pulling out his old walkie talkie. Holding the walkie talkie brought back memories of their long-ago late-night conversations and a small smile made its way onto his face. There were limited ways to contact her, what with the lack of internet or cell service, so walkie talkie it was. She might have just thrown hers away, and if she hadn’t, what was the chance that she had hers turned on too?
@@ -42,6 +49,8 @@ He rummaged through his backpack, pulling out his old walkie talkie. Holding the
 “It is! Is that really you Timothy? Why-I can’t believe this is the way we’re talking to each other again,” she laughed. He missed her laugh. No- he missed her. He would’ve never imagined that an apocalypse is what it would take to get them speaking to each other again. Over their old walkie talkies, they caught up and reminisced about their past. It didn’t take long before they were planning to meet. After all in an apocalypse where the world was slowly dying, having company was more comfortable than wandering alone.
 
 They agreed to meet up in a deserted neighborhood he had found on one of his outings. They both needed to be prepared because it would be a dangerous journey. After the virus had broken out, chaos had taken place. People took advantage of the panic and disorderliness that resulted from the news of the virus. Stores were getting looted, buildings were on fire, and violence prevailed. At times like this, people were their own worst enemy.
+
+***
 
 > ### End - Person Assigned: Austin
 
